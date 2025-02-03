@@ -1,1 +1,1 @@
-# alphapony.github.io
+# liikkeenjohdonkonsultoinnin.github.io
